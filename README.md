@@ -1,1 +1,1 @@
-# my-girl-isis
+This project will in essance just be a fan page about my girlfriend<3 Partly for practice, but mainly because I want to show her off:)
